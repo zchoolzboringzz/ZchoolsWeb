@@ -1,5 +1,11 @@
 # zchoolswebgoogle
 My Google sites version of my website.
-Website: https://sites.google.com/view/thezchoolsbestweb/home?authuser=1
+Website: https://sites.google.com/view/thezchoolsbestweb
 
-What is on the website: Games, pr0x1es, websites. More will be added in the future.
+If that website is blocked, I got another website made with possibly more games than the original.
+Website: https://sites.google.com/view/lexia-math-learning-site
+
+I'm also working on a new gaming website while working on this one. It's basically an alternative if both links don't work.
+Website: https://sites.google.com/view/gaemsareoverrated/home?authuser=4
+
+What is on the websites: Games, pr0x1es, websites. More will be added in the future.
