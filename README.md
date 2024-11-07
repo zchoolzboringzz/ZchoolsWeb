@@ -1,5 +1,5 @@
-# Zchool's Web V0.5 - The best Google Sites website for unblocked games!
-My Google sites version of my website.
+# Zchool's Web V0.6 - The best Google Sites website for unblocked games!
+My Original and always updated website can be found here. 
 Website: https://sites.google.com/view/thezchoolsbestweb
 
 If that website is blocked, I got another website made with possibly more games than the original.
