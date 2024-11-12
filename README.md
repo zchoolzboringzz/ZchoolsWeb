@@ -23,6 +23,4 @@ https://sites.google.com/view/zchoolswebissosigma/home
 https://sites.google.com/view/science-help247/home (Disguised for better service) (Updated to V0.6)
 
 # Project in the making!
-I'm making another project that's related to this one, so look out for updates.
-
-What is on the websites: Games, pr0x1es, websites. More will be added in the future.
+EAZEGAMES - The new way of playing every game you ever wanted to play.
