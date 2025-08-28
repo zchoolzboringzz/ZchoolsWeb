@@ -1,12 +1,10 @@
-# Zchool's Web V0.6 - The best Google Sites website for unblocked games!
+# UPDATE V3
+What is this new and all of a sudden update for? Well, for personal reasons, (and mostly legal) I have decided to **delete**, yes I mean **delete** the proxy tab. Trust me, this is for a good reason. Otherwise, this website wouldn't exist anymore. To make things up, I decided to add more entertainment to the website, (More games, websites, etc.) And I even added a suggestion box! So if you have any suggestions on the website, than submit the form that's inside the tab.
+
+
+# Zchool's Web V3 - The best Google Sites website for unblocked games!
 My Original and always updated website can be found here. 
 Website: https://sites.google.com/view/thezchoolsbestweb
-
-If that website is blocked, I got another website made with possibly more games than the original.
-Website: https://sites.google.com/view/lexia-math-learning-site
-
-I'm also working on a new gaming website while working on this one. It's basically an alternative if both links don't work.
-Website: https://sites.google.com/view/gaemsareoverrated
 
 # What does this website include?
 This website includes games, apps, website, and proxs. All of these can influence your games and unblocking website features with ease.
@@ -14,13 +12,4 @@ This website includes games, apps, website, and proxs. All of these can influenc
 # Alternatives
 Alternatives just incase all of the links are blocked.
 
-https://sites.google.com/view/driveassisterforstudents/home (This is disguised for better service)
-
-https://sites.google.com/view/mathfor9to12grade/home
-
-https://sites.google.com/view/zchoolswebissosigma/home
-
-https://sites.google.com/view/science-help247/home (Disguised for better service) (Updated to V0.6)
-
-# Project in the making!
-EAZEGAMES - The new way of playing every game you ever wanted to play.
+**BEING UPDATED RIGHT NOW. CHECK THE WEBSITE FOR ACTIVE UPDATES!**
