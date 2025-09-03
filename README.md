@@ -18,4 +18,6 @@ https://sites.google.com/view/welovezchoolsweb123/home (Update V3)
 
 https://sites.google.com/view/learning-edu-923/home (Update V3 + Disguised)
 
+https://sites.google.com/view/learingfromixl2025/home (Update V3 + Mass Disguised) **RECENT ALTERNATIVE**
+
 **BEING UPDATED RIGHT NOW. CHECK THE WEBSITE FOR ACTIVE UPDATES!**
