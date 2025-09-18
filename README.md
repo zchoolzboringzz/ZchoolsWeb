@@ -1,5 +1,5 @@
-# UPDATE V3
-What is this new and all of a sudden update for? Well, for personal reasons, (and mostly legal) I have decided to **delete**, yes I mean **delete** the proxy tab. Trust me, this is for a good reason. Otherwise, this website wouldn't exist anymore. To make things up, I decided to add more entertainment to the website, (More games, websites, etc.) And I even added a suggestion box! So if you have any suggestions on the website, than submit the form that's inside the tab.
+# UPDATE V3.5
+Guys, I finally added more games! Yeah.. that's all. I will start adding the front page theme soon, though.
 
 
 # Zchool's Web V3 - The best Google Sites website for unblocked games!
@@ -18,6 +18,8 @@ https://sites.google.com/view/welovezchoolsweb123/home (Update V3)
 
 https://sites.google.com/view/learning-edu-923/home (Update V3 + Disguised)
 
-https://sites.google.com/view/learingfromixl2025/home (Update V3 + Mass Disguised) **RECENT ALTERNATIVE**
+https://sites.google.com/view/learingfromixl2025/home (Update V3 + Mass Disguised) 
+
+https://sites.google.com/view/slope-game-unblock-io/home (Old remake of the website) **RECENT ALTERNATIVE**
 
 **BEING UPDATED RIGHT NOW. CHECK THE WEBSITE FOR ACTIVE UPDATES!**
