@@ -2,12 +2,12 @@
 Guys, I finally added more games! Yeah.. that's all. I will start adding the front page theme soon, though.
 
 
-# Zchool's Web V3 - The best Google Sites website for unblocked games!
+# Zchool's Web - The best Google Sites website for unblocked games!
 My Original and always updated website can be found here. 
 Website: https://sites.google.com/view/thezchoolsbestweb
 
 # What does this website include?
-This website includes games, apps, website, and proxs. All of these can influence your games and unblocking website features with ease.
+This website includes games, apps, and cool websites. All of these can influence your games with ease.
 
 # Alternatives
 Alternatives just incase all of the links are blocked.
